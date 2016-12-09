@@ -1,0 +1,2 @@
+# guangxijinzhongruanjianyouxiangongsi
+广西金中软件有限公司
